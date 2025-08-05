@@ -1,3 +1,7 @@
+# **Week 1 Reflective Writing**
+
+## Author: Chong Jing Yung
+
 Having replenished my energy during the break, I now approach the new semester ready to face its 
 intensified challenges with deliberate preparation. In this semester, I’ve mentally prepared myself in advance.
 On the first day of class, we didn’t cover any new content but instead reviewed content from the previous

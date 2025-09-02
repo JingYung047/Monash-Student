@@ -1,3 +1,6 @@
+# **Week 3 Reflective Writing**
+
+## Author: Chong Jing Yung
 
 Over the past five weeks, nearly half of the semester has passed, and I can feel that both the course expectations and my own standards are rising. With the final project requirements set at a higher level, we are increasingly encouraged to apply the concepts we have learned. This week’s focus has shifted more toward practical application rather than theoretical discussion, which I find especially valuable for developing real-world skills.
 

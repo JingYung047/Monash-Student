@@ -2,7 +2,7 @@
 
 ## Author: Chong Jing Yung
 
-Last week, our group delivered our mock presentation, and overall, my teammates performed quite well.
+In the previous week, our group delivered our mock presentation, and in overall, my teammates performed quite well.
 Personally, however, I felt somewhat disappointed because my performance did not meet my own expectations.
 Due to nervousness, I was unable to express myself as clearly or confidently as I had hoped. Nonetheless,
 this experience was valuable, as it revealed some of my weaknesses. It also made me realize that I lack sufficient

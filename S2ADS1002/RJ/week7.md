@@ -1,3 +1,7 @@
+# **Week 7 Reflective Writing**
+
+## Author: Chong Jing Yung
+
 Last week, our group delivered our mock presentation, and overall, my teammates performed quite well.
 Personally, however, I felt somewhat disappointed because my performance did not meet my own expectations.
 Due to nervousness, I was unable to express myself as clearly or confidently as I had hoped. Nonetheless,
